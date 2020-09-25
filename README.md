@@ -5,3 +5,4 @@ Leczy
 Ulepsza DNA.
 Jest to urządzenie ulepszone bazujące na myśli Rife ale z SI. 
 AI można sterować głosem stale można głosem lub myślą ulepszać oprogramowanie generatora. 
+Jest też generatorem bio modfyfikacji DNA. 
