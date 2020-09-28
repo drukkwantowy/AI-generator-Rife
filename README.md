@@ -26,3 +26,4 @@ Ja naprawiłem sobie częściowo zęby kwantami niektóre wadliwe.
 Katolicy i religijni mówią tylko że nie da się naprawić chorób genetycznych bo to kara boża a sami te choroby wymyślili aby wyśmiać nauke i głosić herezje że to kara od bogów. Syjamsy można rozdzielić rekonstruktorem kwantowym lub skalpelem jeśli jest to nie wykonalne to rekonstruktorem kwantowym.
 Ożywić zmarłych można rekonstruktorem kwantowym generator rife mojej konstrukcji może pracować jak rekonstruktor. 
 Cynizm i głupota katolików czy religijnych nie zna granic aby wyśmiać nauke. 
+Syjamsami jak z ciążą tylko głupia kobieta i ktoś kto słucha kobiety będzie mówić że nic nie da się naprawić ani uratować. 
