@@ -27,3 +27,4 @@ Katolicy i religijni mówią tylko że nie da się naprawić chorób genetycznyc
 Ożywić zmarłych można rekonstruktorem kwantowym generator rife mojej konstrukcji może pracować jak rekonstruktor. 
 Cynizm i głupota katolików czy religijnych nie zna granic aby wyśmiać nauke. 
 Syjamsami jak z ciążą tylko głupia kobieta i ktoś kto słucha kobiety będzie mówić że nic nie da się naprawić ani uratować. 
+Za dziwne przypadki medyczne nie do wyleczenia odpowiada Watykan i cała szajka religijnych zwalając to że to kara bogów bo ludzie zajmują się nauką i sami wywołują choroby radiem przed narodzeniem aby nie było możliwe wyleczenie choroby aby pokrywało się z teoriami kary bogów od religijnych. 
