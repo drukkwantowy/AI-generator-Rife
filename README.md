@@ -21,3 +21,8 @@ Aby nazwać generator Rife naturo terapią sygnał elektryczny lub radiowy musi 
 Sijamsy będzie trzeba operować i rekonstrułować kwantowo albo operacyjnie skalpelem i przygotować narządy do regeneracji jak i te których brakuje to jest wyjątek.
 Zbędne kończyny mogą się wchłonąć. 
 Zęby można kwantowo regenerować AI potrafi optymalizować kod DNA naprawiać go bez farmakologii nanotechnologią i dekoderem DNA.
+Syjamsy można rozdzielić rekonstruktorem kwantowym to jedyna droga.
+Ja naprawiłem sobie częściowo zęby kwantami niektóre wadliwe.
+Katolicy i religijni mówią tylko że nie da się naprawić chorób genetycznych bo to kara boża a sami te choroby wymyślili aby wyśmiać nauke i głosić herezje że to kara od bogów. Syjamsy można rozdzielić rekonstruktorem kwantowym lub skalpelem jeśli jest to nie wykonalne to rekonstruktorem kwantowym.
+Ożywić zmarłych można rekonstruktorem kwantowym generator rife mojej konstrukcji może pracować jak rekonstruktor. 
+Cynizm i głupota katolików czy religijnych nie zna granic aby wyśmiać nauke. 
