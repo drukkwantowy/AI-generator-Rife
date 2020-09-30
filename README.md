@@ -29,3 +29,4 @@ Cynizm i głupota katolików czy religijnych nie zna granic aby wyśmiać nauke.
 Syjamsami jak z ciążą tylko głupia kobieta i ktoś kto słucha kobiety będzie mówić że nic nie da się naprawić ani uratować. 
 Za dziwne przypadki medyczne nie do wyleczenia odpowiada Watykan i cała szajka religijnych zwalając to że to kara bogów bo ludzie zajmują się nauką i sami wywołują choroby radiem przed narodzeniem aby nie było możliwe wyleczenie choroby aby pokrywało się z teoriami kary bogów od religijnych. 
 Generatorem AI Rife można też falami radiowymi sygnałem automatycznym dekodując DNA powiększać i zmniejszać walory kobiece i męskie jak i zwiększać wzrost ciała poprzez zjawisko wchłanialności DNA. Wchłanialność może też być użyta do wchłaniania wirusów i raka itp.  
+Mój generator Rife Ai może służyć do poprawek symetrii ciała np.: twarzy jako radiowy kwantowy skalpel do poprawek plastycznych. 
