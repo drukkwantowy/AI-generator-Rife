@@ -36,3 +36,4 @@ Są generowane automatyczne raporty w zapisie DNA z badania tomografu komputerow
 Generator rife AI może przed narodzeniem jak i po narodzeniu usunąć wady DNA aby uczynić człowieka zdrowym a to dzięki kwantom falom radiowym i AI. 
 90% Kodu DNA jest kodem śmieciowym który odpowiada za śmierć i wady DNA czyli podatność na choroby. Jeśli AI wykasuje kod Śmieciowy w tym kod DNA kod śmierci to jest duża szansa że człowiek nie umrze na starość i będzie mógł żyć wiecznie na ziemi w ciele ciesząc się swoim życiem z rodziną. Trzeba nauczyć uczeniem maszynowym rozpoznawać wadliwy kod i usuwać kod dzięki AI czyli czyścić kod DNA ze śmieci w DNA.
 Można transmutować swoje DNA aby mięśnie, kości, DNA było sytetyczną nanotechnolgią z cząstek sytetycznych odpornych na rozkład i mutacje aby uzyskać nanotechnologiczny wewnętrzny egzoszkielet ciała. Czyli połączenie biologii w plastikową nanotechnologią. 
+Można też naprawić wzrok lub poprawić jego widzenie w ciemności bez okularów. 
