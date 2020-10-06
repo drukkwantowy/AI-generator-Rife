@@ -40,3 +40,4 @@ Można też naprawić wzrok lub poprawić jego widzenie w ciemności bez okular�
 Sieć neuronowa Rife może nanotechnologicznie usunąć raka lub narośl poprzez rozłożenie i wchłonięcie choroby naprawę DNA.
 Działa jak serwer zdrowia jeśli jest zainstalowana na platforme Arduino.
 Potrafi czyścić kod DNA z złego DNA i RNA. 
+Farmacja i chirurgia jest przeciwieństwem nanotechnologi media pokazują i kreują nam świat przeciwny do tego jaki powinien on być. 
