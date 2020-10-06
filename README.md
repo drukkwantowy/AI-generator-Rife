@@ -42,3 +42,4 @@ Działa jak serwer zdrowia jeśli jest zainstalowana na platforme Arduino.
 Potrafi czyścić kod DNA z złego DNA i RNA. 
 Farmacja i chirurgia jest przeciwieństwem nanotechnologi media pokazują i kreują nam świat przeciwny do tego jaki powinien on być. 
 Generator Rife może też być stosowany w fizjoterapi w połączeniu z maszynami do fizjoterapi aby zwiększyć wydajność treningu jak wzmocnienie czy lepsze spalanie tłuszczu wyciągając energie elektryczną i zmuszając ciało do spalania tłuszczu.
+W Połączeniu z drukarką kwantową można wygenerować specjalne ziołowe leki pod konkretne DNA które są lepsze niż to co jest w aptece opracowane bez błędnie przez AI.
