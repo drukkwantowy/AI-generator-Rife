@@ -44,3 +44,4 @@ Farmacja i chirurgia jest przeciwieństwem nanotechnologi media pokazują i kreu
 Generator Rife może też być stosowany w fizjoterapi w połączeniu z maszynami do fizjoterapi aby zwiększyć wydajność treningu jak wzmocnienie czy lepsze spalanie tłuszczu wyciągając energie elektryczną i zmuszając ciało do spalania tłuszczu.
 W Połączeniu z drukarką kwantową można wygenerować specjalne ziołowe leki pod konkretne DNA które są lepsze niż to co jest w aptece opracowane bez błędnie przez AI.
 Do generatora Rife AI trzeba wytworzyć baze danych anlizatorem kwantowym zdrowia na jej wynikach unikalnych dla każdego DNA powstanie Baza która będzie reperować DNA.
+W repozystorium jest AI anlizator kwantowy zdrowia sterowany BCI i Głosem.
