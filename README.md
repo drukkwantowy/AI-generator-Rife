@@ -45,3 +45,4 @@ Generator Rife może też być stosowany w fizjoterapi w połączeniu z maszynam
 W Połączeniu z drukarką kwantową można wygenerować specjalne ziołowe leki pod konkretne DNA które są lepsze niż to co jest w aptece opracowane bez błędnie przez AI.
 Do generatora Rife AI trzeba wytworzyć baze danych anlizatorem kwantowym zdrowia na jej wynikach unikalnych dla każdego DNA powstanie Baza która będzie reperować DNA.
 W repozystorium jest AI anlizator kwantowy zdrowia sterowany BCI i Głosem.
+Jeśli chodzi o nieśmiertelność cielesną najlepiej jest zbadać wszystkim DNA dać kody DNA do komputera kwantowego do analizy i nabazie tej analizy stworzyć uniwersalną szczepionkę na każdą chorobę jaką można zachorować w postaci podawanej laserowo lub tradycyjnie 1 inekcji na całe życie 1 szczepionka na każdą chorobe. 
