@@ -48,3 +48,4 @@ W repozystorium jest AI anlizator kwantowy zdrowia sterowany BCI i Głosem.
 Jeśli chodzi o nieśmiertelność cielesną najlepiej jest zbadać wszystkim DNA dać kody DNA do komputera kwantowego do analizy i nabazie tej analizy stworzyć uniwersalną szczepionkę na każdą chorobę jaką można zachorować w postaci podawanej laserowo lub tradycyjnie 1 inekcji na całe życie 1 szczepionka na każdą chorobe. 
 Z chorobami u człowieka i istot żywych jak u komputerów. Wystarczy na wszystkie choroby poprzez AI obliczenia zaprojektować uniwersalną szczepionkę na każdą chorobę i nazwać 1 chorobą wszystkie choroby po co stos leków jak może być 1 skuteczny lek na wszystkie choroby.
 Do obliczeń potrzebny jest kod DNA każdego człowieka dla komputera dla wyliczeń do opracowania 1 litej szczepionki na każdą chorobę aby pozbyć się kodu śmierci w DNA.
+Jak rząd ma problem z cudakami paranormalnymi to radiowo można rozkodować i schakować DNA tak zwanego boga i sprawić aby być śmiertelny.
