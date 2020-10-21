@@ -49,3 +49,4 @@ Jeśli chodzi o nieśmiertelność cielesną najlepiej jest zbadać wszystkim DN
 Z chorobami u człowieka i istot żywych jak u komputerów. Wystarczy na wszystkie choroby poprzez AI obliczenia zaprojektować uniwersalną szczepionkę na każdą chorobę i nazwać 1 chorobą wszystkie choroby po co stos leków jak może być 1 skuteczny lek na wszystkie choroby.
 Do obliczeń potrzebny jest kod DNA każdego człowieka dla komputera dla wyliczeń do opracowania 1 litej szczepionki na każdą chorobę aby pozbyć się kodu śmierci w DNA.
 Jak rząd ma problem z cudakami paranormalnymi to radiowo można rozkodować i schakować DNA tak zwanego boga i sprawić aby być śmiertelny.
+Wode można programować jako lek na wszystko, można zaprojektować filtr czyszcząco programujący do wody aby woda była lecznicza.
