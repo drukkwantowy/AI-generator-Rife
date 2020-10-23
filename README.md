@@ -50,3 +50,4 @@ Z chorobami u człowieka i istot żywych jak u komputerów. Wystarczy na wszystk
 Do obliczeń potrzebny jest kod DNA każdego człowieka dla komputera dla wyliczeń do opracowania 1 litej szczepionki na każdą chorobę aby pozbyć się kodu śmierci w DNA.
 Jak rząd ma problem z cudakami paranormalnymi to radiowo można rozkodować i schakować DNA tak zwanego boga i sprawić aby być śmiertelny.
 Wode można programować jako lek na wszystko, można zaprojektować filtr czyszcząco programujący do wody aby woda była lecznicza.
+W łączeniu z antywirusami można genetycznie blokować choroby.
