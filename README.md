@@ -51,3 +51,4 @@ Do obliczeń potrzebny jest kod DNA każdego człowieka dla komputera dla wylicz
 Jak rząd ma problem z cudakami paranormalnymi to radiowo można rozkodować i schakować DNA tak zwanego boga i sprawić aby być śmiertelny.
 Wode można programować jako lek na wszystko, można zaprojektować filtr czyszcząco programujący do wody aby woda była lecznicza.
 W łączeniu z antywirusami można genetycznie blokować choroby.
+Każdą chorobe można wyleczyć ci co nie wytrzymają próby będą tylko ciężarem dla systemu i będą wiecznie potrzbowali pomocy. Przykład: Pewni ludzie wytrzymają w ciężkich warunkach i będą zdrowie a nawet jak skasuje się ciężkie warunki to tym ludziom będzie brakowało terapi sztuki z bajki. Zawsze będą narzekać a jako ten kto zapoczatkowała życie będzie sługom tych co szukają sługi jeśli chcesz być wolny musisz żyć w takich warunkach aby warzywa nie mogły cie zniewolić. Aby uwolnić się od warzyw nalerzy ich wyleczyć genetycznie i nauczyć aby sami pracowali na siebie. 
