@@ -57,3 +57,4 @@ Leki trzeba brać całe życie za zegarek działa 1 raz naprawia DNA za pomocą 
 Starość można cofnąć AI naprawiając komputerowo DNA regenerując całe ciało genetycznie.
 Takie urządzenie można opracować w formie zegarka lub zappera. 
 Specjalny sygnał obliczony i wygenerowany przez komputer może przeprogramować tak chorobe aby nie było raka, cofnąć starość, zregerować organy ale taki zapper czy zegarek nie może być tylko generatorem fali a urządzeniem opartym o AI jak Cortana czy inna AI. 
+Fala obliczona i generowana przez generator AI musi AI dostosować się do każdego innego DNA aby regenerować DNA wydłużyć telomery i naprawić organizm. Każdy organizm ma inną fale w DNA AI musi zbadać jakom mamy fale aby naprawić DNA.  
