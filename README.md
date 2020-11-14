@@ -56,3 +56,4 @@ Szczepionka na covid 19 nie chroni dobrze bo znajdzie się ktoś kto w WHO wymy�
 Leki trzeba brać całe życie za zegarek działa 1 raz naprawia DNA za pomocą AI. Leki to szydzenie z człowieka przez korporacje. 
 Starość można cofnąć AI naprawiając komputerowo DNA regenerując całe ciało genetycznie.
 Takie urządzenie można opracować w formie zegarka lub zappera. 
+Specjalny sygnał obliczony i wygenerowany przez komputer może przeprogramować tak chorobe aby nie było raka, cofnąć starość, zregerować organy ale taki zapper czy zegarek nie może być tylko generatorem fali a urządzeniem opartym o AI jak Cortana czy inna AI. 
