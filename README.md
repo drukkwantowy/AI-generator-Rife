@@ -60,3 +60,4 @@ Specjalny sygnał obliczony i wygenerowany przez komputer może przeprogramować
 Fala obliczona i generowana przez generator AI musi AI dostosować się do każdego innego DNA aby regenerować DNA wydłużyć telomery i naprawić organizm. Każdy organizm ma inną fale w DNA AI musi zbadać jakom mamy fale aby naprawić DNA.  
 AI specjalnym sygnałem może wpływać na DNA zwiększając wzrost, usuwać zmarszczki, naprawiać skórę, zwiększać walory człowieka itp bez skalpela i leków. 
 Dobra szczepionka musi dawać 100% ochrony i opierać się o nanotechnologie zapobiegać każdej wadzie DNA bo tak ciągła wizyta w aptece. 
+Generator rife może zmusić DNA aby od nowa urłosy zęby w ubytku jeśli ząb wypadł lub był uszkodzony. Generator rife może być w formie nanotechnologii. 
