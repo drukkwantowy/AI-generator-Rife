@@ -61,3 +61,4 @@ Fala obliczona i generowana przez generator AI musi AI dostosować się do każd
 AI specjalnym sygnałem może wpływać na DNA zwiększając wzrost, usuwać zmarszczki, naprawiać skórę, zwiększać walory człowieka itp bez skalpela i leków. 
 Dobra szczepionka musi dawać 100% ochrony i opierać się o nanotechnologie zapobiegać każdej wadzie DNA bo tak ciągła wizyta w aptece. 
 Generator rife może zmusić DNA aby od nowa urłosy zęby w ubytku jeśli ząb wypadł lub był uszkodzony. Generator rife może być w formie nanotechnologii. 
+Na zęby można zrobić inteligentą ciecz do czyszczenia i regeneracji. 
