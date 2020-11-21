@@ -64,3 +64,4 @@ Generator rife może zmusić DNA aby od nowa urłosy zęby w ubytku jeśli ząb 
 Na zęby można zrobić inteligentą ciecz do czyszczenia i regeneracji. 
 W zaperze AI można zapisać informacje energetycznego i replikującego z energii komurek macerzystych do regeneracji DNA. 
 Generator AI-Rife może być użyty do zdrowego dopingu ciała bez ubytków np.: może zastąpić tradycyjną siłownie.  
+Zapper AI może energią przekazywać leki lub replikować je jak apteka cyfrowa można ulepszyć obecne urządzenia tego typu o funkcje druku leków. 
