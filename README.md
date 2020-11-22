@@ -67,3 +67,4 @@ Generator AI-Rife może być użyty do zdrowego dopingu ciała bez ubytków np.:
 Zapper AI może energią przekazywać leki lub replikować je jak apteka cyfrowa można ulepszyć obecne urządzenia tego typu o funkcje druku leków. 
 Odpowiednią falą elektryczną z zapisem informacji komurek macierzystych można automatycznie naprawić bez przeszczepu wady serca czy ożywiać zmarłych z AI. 
 Zapper AI na rękę może regenerować organy. 
+Zegarek zapper AI może wgrać poprawki do regenerowania narządów, program rozruchu serca a noszony cały czas jest jak AI lekarz. Nie bazuje na studenckiej prostocie na wszystko generator funkcyjny bez stosowania informacji. 
