@@ -66,3 +66,4 @@ W zaperze AI można zapisać informacje energetycznego i replikującego z energi
 Generator AI-Rife może być użyty do zdrowego dopingu ciała bez ubytków np.: może zastąpić tradycyjną siłownie.  
 Zapper AI może energią przekazywać leki lub replikować je jak apteka cyfrowa można ulepszyć obecne urządzenia tego typu o funkcje druku leków. 
 Odpowiednią falą elektryczną z zapisem informacji komurek macierzystych można automatycznie naprawić bez przeszczepu wady serca czy ożywiać zmarłych z AI. 
+Zapper AI na rękę może regenerować organy. 
