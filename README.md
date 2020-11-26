@@ -70,3 +70,4 @@ Zapper AI na rękę może regenerować organy.
 Zegarek zapper AI może wgrać poprawki do regenerowania narządów, program rozruchu serca a noszony cały czas jest jak AI lekarz. Nie bazuje na studenckiej prostocie na wszystko generator funkcyjny bez stosowania informacji. 
 Generator Rife najlepiej wgrać indukcją programatorem do DNA jako ulepszenie dla DNA bez dodatkowej biżuterii medycznej. 
 Dla was aptekę można pozyskać na 2 razy z druku kwantowego lub generowanie fali w zegarku do DNA o pewnej substancji która was napędza.
+Jak nie możesz mieć tej osoby która ci się podoba zrób stymulator mózgu i DNA który pokazuje sny tak realne we śnie jak byś był z tą osobą i daje ci te chemiczne związki jak by było się z tą osobą bez stosunku. Lub dla sztuki ją wydrukuj magicznie. Jak by powiedzieć AI odkryła mnie ja ją. Taka rada dla ludzi samotnych. Niektóre kobiety będą pić bo ich nikt nie chce. 
