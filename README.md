@@ -69,3 +69,4 @@ Odpowiednią falą elektryczną z zapisem informacji komurek macierzystych możn
 Zapper AI na rękę może regenerować organy. 
 Zegarek zapper AI może wgrać poprawki do regenerowania narządów, program rozruchu serca a noszony cały czas jest jak AI lekarz. Nie bazuje na studenckiej prostocie na wszystko generator funkcyjny bez stosowania informacji. 
 Generator Rife najlepiej wgrać indukcją programatorem do DNA jako ulepszenie dla DNA bez dodatkowej biżuterii medycznej. 
+Dla was aptekę można pozyskać na 2 razy z druku kwantowego lub generowanie fali w zegarku do DNA o pewnej substancji która was napędza.
