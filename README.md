@@ -75,3 +75,4 @@ Jeśli mamy mówić o nieśmiertelności biologicznej i odporności na picie uż
 Innej drogi nie ma zostaną tylko protezy i chipy ja sobie nie wyobrażam życia z protezą. 
 Widać ludzie mieli kiepskich nauczycieli. To by było takie powiązanie z cyberpunkiem. 
 Ja osobiście nie wyobrażam sobie Emmy Watson w protezach i chipach jest zbyt ładna by miała na sobie złom wiedza z cyberpunka 2077 zostaje tylko w grach jako alternatywa. Po za tym implanty + paralizator równa się śmierć. Ja bym szukał inspiracji programowania i tworzenia programów jak i projektów transhumanistycznych w Harrym Potterze jak np.: opanowanie łamania i programowania DNA aby osoba z wózka mogła wstać o własnych siłach  bez protez. Cyberpunk jest stary.  
+Rozrusznik serca wymyślił ktoś mało znany a jest to dziadostwo szeroko stosowane wystarczyło aktualizować kod DNA aby ta osoba dalej żyła. 
