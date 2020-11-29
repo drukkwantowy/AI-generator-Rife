@@ -74,3 +74,4 @@ Jak nie możesz mieć tej osoby która ci się podoba zrób stymulator mózgu i 
 Jeśli mamy mówić o nieśmiertelności biologicznej i odporności na picie używek to można mówić o zegarku z AI aktualizującym nasze DNA automatycznie jak automatyczne aktualizacje do systemu. Po aktualizacji DNA zegarek do zdjęcia. 
 Innej drogi nie ma zostaną tylko protezy i chipy ja sobie nie wyobrażam życia z protezą. 
 Widać ludzie mieli kiepskich nauczycieli. To by było takie powiązanie z cyberpunkiem. 
+Ja osobiście nie wyobrażam sobie Emmy Watson w protezach i chipach jest zbyt ładna by miała na sobie złom wiedza z cyberpunka 2077 zostaje tylko w grach jako alternatywa. Po za tym implanty + paralizator równa się śmierć. Ja bym szukał inspiracji programowania i tworzenia programów jak i projektów transhumanistycznych w Harrym Potterze jak np.: opanowanie łamania i programowania DNA aby osoba z wózka mogła wstać o własnych siłach  bez protez. Cyberpunk jest stary.  
