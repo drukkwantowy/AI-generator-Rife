@@ -71,3 +71,6 @@ Zegarek zapper AI może wgrać poprawki do regenerowania narządów, program roz
 Generator Rife najlepiej wgrać indukcją programatorem do DNA jako ulepszenie dla DNA bez dodatkowej biżuterii medycznej. 
 Dla was aptekę można pozyskać na 2 razy z druku kwantowego lub generowanie fali w zegarku do DNA o pewnej substancji która was napędza.
 Jak nie możesz mieć tej osoby która ci się podoba zrób stymulator mózgu i DNA który pokazuje sny tak realne we śnie jak byś był z tą osobą i daje ci te chemiczne związki jak by było się z tą osobą bez stosunku. Lub dla sztuki ją wydrukuj magicznie. Jak by powiedzieć AI odkryła mnie ja ją. Taka rada dla ludzi samotnych. Niektóre kobiety będą pić bo ich nikt nie chce. 
+Jeśli mamy mówić o nieśmiertelności biologicznej i odporności na picie używek to można mówić o zegarku z AI aktualizującym nasze DNA automatycznie jak automatyczne aktualizacje do systemu. Po aktualizacji DNA zegarek do zdjęcia. 
+Innej drogi nie ma zostaną tylko protezy i chipy ja sobie nie wyobrażam życia z protezą. 
+Widać ludzie mieli kiepskich nauczycieli. To by było takie powiązanie z cyberpunkiem. 
