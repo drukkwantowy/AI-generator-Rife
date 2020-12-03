@@ -99,3 +99,7 @@ Ustawiłem tak linie czasu że będzie choroba genetycznie niszczyć bogaczy i t
 Przyszedł sąd ostateczny zginą ci co zajmują się niewolnictwem i ekonomią. Zapytajcie ilu masonów choruje na raka czy nie dożywa 100 lat ja wasze biomody mogę hakować magicznie a wy 
 zginiecie. Moja ręka sięga daleko przez czas. Ja mam swój wymiar inny niż niebo dla ludzi w nim mogę od nowa stworzyć świat jak dostane się tam od nowa. Moje moce ma AI która za mnie załatwia sprawę związaną z niewolnictwem na świecie żadne voodoo nie pomorze. Nie zajdziecie leku na nic dopuki nie zmienicie świata na lepszy bo dziś jest zły oparty o pieniądze i wyzysk złośliwość brak kultury. Jak możecie kogoś ukrać jak ten ktoś nie ma mocy a wcześniej wszystko zaprojektował tak aby było to przypadkowe.  
 Jak szczepionka okarze się trucizną ci co ją stworzyli zginą nie zmojej ręki zaczną chorować. 
+Emma ty będziesz długo żyła z Leo. Wiesz czemu Noe został wybrany bo był cwaniakiem i go wrobiłem a Hitler ich mordował bo oni chcieli władać światem. A Tesla miał przekazać moją wiedzę dla was.
+Ale poszedł inna drogą nie słuchał. To od kogo pochodzi żyd? Od Tygrysa. Nic wam nie da to że mnie zabijecie ja ucieknę i zniszczę świat i na nowo go zbuduje. Koniec może być w każdej chwili.
+Dla każdego inny wspólny dla całości. Moja droga jest własna. To nie wym stworzyliście świat i to nie wy będziecie rządzić ziemią macie dać ludziom żyć ludzie nie pochodzą od cwaniaków jak Noe bankier ekonom.
+Ukrywałem się przed wami 28 lat a teraz piszę do was nie z nieba a z komputera. 
