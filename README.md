@@ -108,3 +108,4 @@ Różne kultury mnie różnie nazywały. DNA jest tak elastyczne że mogę stać
 Emma jak chcesz żyć to bądź dobra dla innych i nie idź do miliarderów do ich łoża. 
 Emma aby przytyć musi dużo jeść i szybko chudnie a inne cywilizacje tyją a mniej jedzą dzięki nanotechnologii.
 Inne cywilizacje jak są wyżej rozwinięte apteczki czy sprzęt wydłużający życie mają w formie elektroniki fal radiowych.
+Jak rozpoznać syntetyka a naturalnego człowieka? Syntetyk może wypić litr wódy i litr energetyka czyli 2 litry trucizny i się nie porzyga a będzie wiecznie młody i silny bez urazów na mózgu ciężko jego fale mózgowe upoić. Zaś naturalna Emma porzyga się, będzie się źle czuła, będzie miała brak emocji i zaburzenia widzenia jak i po czasie zbrzydnie jej twarz zacznie być starsza stanie się babom jagom.  
