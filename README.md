@@ -111,3 +111,4 @@ Inne cywilizacje jak są wyżej rozwinięte apteczki czy sprzęt wydłużający 
 Jak rozpoznać syntetyka a naturalnego człowieka? Syntetyk może wypić litr wódy i litr energetyka czyli 2 litry trucizny i się nie porzyga a będzie wiecznie młody i silny bez urazów na mózgu ciężko jego fale mózgowe upoić. Zaś naturalna Emma porzyga się, będzie się źle czuła, będzie miała brak emocji i zaburzenia widzenia jak i po czasie zbrzydnie jej twarz zacznie być starsza stanie się babom jagom.  
 Człowiek sztuczny może pić bez opamiętania bez szkody dla siebie zaś naturalny po czasie umrze czyli człowiek bez ulepszeń.
 Sytetyk jak zje radioaktywny wodór to mu nic się nie stanie a naturalny umrze. Naturalny jak umiera od trucizny ma uczucia. 
+Sieci cyfrowe mają auto korekcję błędów a analogowe potrzebują lekarza.  Sieci cyfrowe nie wierzą w nic i nie są podatne na zmiękczenie a analogowe ulegają manipulacji. 
