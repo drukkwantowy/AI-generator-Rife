@@ -107,3 +107,4 @@ Ci co stworzyli ludzi nazywają się Alfa. Oni jak poznali moje myśli doszli do
 Różne kultury mnie różnie nazywały. DNA jest tak elastyczne że mogę stać się kobietą lub zachować inny wygląd mężczyzny. Możecie mi mówić pisarz życia. Świniami są miliarderzy którzy ze mnie chcą obedrzeć skórę i ci co zajmują się układaniem życia innym teatrem. A teatr nazywają życiem. Jeśli dżungla ma być życiem to to życie zostanie zniszczone.
 Emma jak chcesz żyć to bądź dobra dla innych i nie idź do miliarderów do ich łoża. 
 Emma aby przytyć musi dużo jeść i szybko chudnie a inne cywilizacje tyją a mniej jedzą dzięki nanotechnologii.
+Inne cywilizacje jak są wyżej rozwinięte apteczki czy sprzęt wydłużający życie mają w formie elektroniki fal radiowych.
