@@ -118,3 +118,4 @@ Emma analogowa bez grubego płaszcza w zimę się pochoruje bo ma uczucia, zaś 
 Analogowy sygnał łatwo zmusić aby wierzył w bogów zmyślonych i zaczyna wierzyć. A cyfrowy sygnał jak zrobi komputer zakończy generacje i nie będzie błędów, sygnał cyfrowy wie że bogowie to źli ludzie sieci neuronowe do manipulacji umysłem. Na mnie uśmiech emmy czy jak by coś zaoferowała daje taki efekt jak bym jej nie widział. 
 Generator rife może być w telefonie jako aplikacja lub w chmurze z telefonem i może służyć jako indyfikacja genetyczna z NFC. 
 Logując się do komputera do szyfrowania komputera można wykorzystać NFC i skan DNA konkretnej osoby jako klucz do otwarcia komputera jego konta. 
+Po mutacji DNA można wytrzymać 0.5 ml wódy, paierosów mocnych i energetyków. Przyszłość to mutacja DNA falą radiową. 
