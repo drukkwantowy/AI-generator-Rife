@@ -119,3 +119,4 @@ Analogowy sygnał łatwo zmusić aby wierzył w bogów zmyślonych i zaczyna wie
 Generator rife może być w telefonie jako aplikacja lub w chmurze z telefonem i może służyć jako indyfikacja genetyczna z NFC. 
 Logując się do komputera do szyfrowania komputera można wykorzystać NFC i skan DNA konkretnej osoby jako klucz do otwarcia komputera jego konta. 
 Po mutacji DNA można wytrzymać 0.5 ml wódy, paierosów mocnych i energetyków. Przyszłość to mutacja DNA falą radiową. 
+Deformacje ekstremalne można usuwać odwrotną inżynierią genetyczną robioną przez AI. 
