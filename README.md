@@ -126,3 +126,4 @@ Program może wygenerować fale generującą nanotechnologię generować radiowo
 Aby uzyskać nieśmiertelność DNA wystarczy zmutować tkanki do postaci bio plastiku nanotechnologią tworzywa sztucznego odpornego na mutacje genetyczne raka z likwidacją kodu śmierci można pomyśleć o nanitach i lepszym układzie imunologicznym jak i innych ulepszeniach jak telepatia czy widzenie w ciemności to wystarczy aby człowiek był ulepszony. 
 Dożucić można regeneracyjną nanotechnologię instalowaną z urządzenia USB np.: Alexy. 
 Można też korzystać z rezonansu aby z impulsów elektrycznych generować energię elektryczną do zasilania ciała jak brak jedzenia jest.   
+Zegarek jest przejściową formą czy inne urządzenia można dzięki niemu wgrać oprogramowanie od DNA które samo się programuje i aktualizuje bez konieczności ingerencji w DNA 2 raz. 
