@@ -128,3 +128,4 @@ Dożucić można regeneracyjną nanotechnologię instalowaną z urządzenia USB 
 Można też korzystać z rezonansu aby z impulsów elektrycznych generować energię elektryczną do zasilania ciała jak brak jedzenia jest.   
 Zegarek jest przejściową formą czy inne urządzenia można dzięki niemu wgrać oprogramowanie od DNA które samo się programuje i aktualizuje bez konieczności ingerencji w DNA 2 raz. 
 Całom strukturę DNA i materi biologicznej można zmienić aby nie ulegała edycji którą robi choroba. 
+Ulepszenie biologi nazywało by się Mikrofibral struktura DNA.
