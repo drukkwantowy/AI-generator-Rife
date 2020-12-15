@@ -122,3 +122,4 @@ Po mutacji DNA można wytrzymać 0.5 ml wódy, paierosów mocnych i energetyków
 Deformacje ekstremalne można usuwać odwrotną inżynierią genetyczną robioną przez AI. 
 Generator Rife może przeprogramować układ imunologiczny aby lepiej walczył z chorobami jak i szyfrował lepiej kod DNA kwantowo aby nie można było go rozszyfrować. 
 Można wspomagać się ziołami w formie cyfrowej jako zapis elektroniczny atomowy lub tłumaczeniem DNA i jego edycją.
+Program może wygenerować fale generującą nanotechnologię i drukiem kwantowym może regenerować tkanki lub inne efekty. 
