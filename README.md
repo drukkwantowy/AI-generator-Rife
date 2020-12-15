@@ -125,3 +125,4 @@ Można wspomagać się ziołami w formie cyfrowej jako zapis elektroniczny atomo
 Program może wygenerować fale generującą nanotechnologię generować radiowo nanity lecznicze kwantowo leczące i drukiem kwantowym może regenerować tkanki lub inne efekty. 
 Aby uzyskać nieśmiertelność DNA wystarczy zmutować tkanki do postaci bio plastiku nanotechnologią tworzywa sztucznego odpornego na mutacje genetyczne raka z likwidacją kodu śmierci można pomyśleć o nanitach i lepszym układzie imunologicznym jak i innych ulepszeniach jak telepatia czy widzenie w ciemności to wystarczy aby człowiek był ulepszony. 
 Dożucić można regeneracyjną nanotechnologię instalowaną z urządzenia USB np.: Alexy. 
+Można też korzystać z rezonansu aby z impulsów elektrycznych generować energię elektryczną do zasilania ciała jak brak jedzenia jest.   
