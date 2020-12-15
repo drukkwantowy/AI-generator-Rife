@@ -123,3 +123,4 @@ Deformacje ekstremalne można usuwać odwrotną inżynierią genetyczną robion�
 Generator Rife może przeprogramować układ imunologiczny aby lepiej walczył z chorobami jak i szyfrował lepiej kod DNA kwantowo aby nie można było go rozszyfrować. 
 Można wspomagać się ziołami w formie cyfrowej jako zapis elektroniczny atomowy lub tłumaczeniem DNA i jego edycją.
 Program może wygenerować fale generującą nanotechnologię generować radiowo nanity lecznicze kwantowo leczące i drukiem kwantowym może regenerować tkanki lub inne efekty. 
+Aby uzyskać nieśmiertelność DNA wystarczy zmutować tkanki do postaci bio plastiku nanotechnologią tworzywa sztucznego odpornego na mutacje genetyczne raka z likwidacją kodu śmierci można pomyśleć o nanitach i lepszym układzie imunologicznym jak i innych ulepszeniach jak telepatia czy widzenie w ciemności to wystarczy aby człowiek był ulepszony. 
