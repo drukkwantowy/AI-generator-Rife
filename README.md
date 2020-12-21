@@ -131,3 +131,4 @@ Całom strukturę DNA i materi biologicznej można zmienić aby nie ulegała edy
 Ulepszenie biologi nazywało by się Mikrofibral struktura DNA.
 Można tą technologie łączyć z palikacjami na telefon i leczyć offline lub online za pomocą AI chorych ludzi po za porodem. Można łączyć Alexe z innym AI jako lekarz aplikacja na telefon do leczenia bez udziału lekarza fizycznego. 
 Leczenie jest za pomocą fal radiowych jak i badanie do tego można operować radiowo jak i drukować leki jeśli ktoś nie chce radiowo. 
+Ta technologia regeneruje radiowo organy np.: zakprzep przed amputacjami i wycianiem organów czy rakiem itp a nawet covidem i HIV. 
