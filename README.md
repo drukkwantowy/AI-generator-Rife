@@ -140,3 +140,4 @@ Iran i żydzi będą głosić herezje że świat jest z gliny a polacy aryjczycy
 Można opracować elektryczne na USB materace regeneracyjne do regeneracji organów promieniowaniem lub materac z nanotechnologią który regeneruje i leczy ciało bez elektroniki korzystając z fizyki kwantów nanomateriałów bez kabla USB wierząc energię leczniczą w materacu nanomateriale.  
 Generatorem Rife AI można zeskanować DNA aby wydrukować nowe nano narządy lub regenerować je. A jak to fundacje z medykami nie przekonuje to macie problem. Ja wam nic nie dam.
 Wolał bym być pochowany i spalony na cmentarzu niż leczony farmakologią i skalpelem ideom medycyny klasycznej nie innowacyjnej a archaicznej.
+Co do magi i sztuk tajemnych to też jest to prymitywizm skracanie prawdy bo prawdą jest to że materia jest elektroniką.
