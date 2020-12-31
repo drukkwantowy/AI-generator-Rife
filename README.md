@@ -141,3 +141,5 @@ Można opracować elektryczne na USB materace regeneracyjne do regeneracji organ
 Generatorem Rife AI można zeskanować DNA aby wydrukować nowe nano narządy lub regenerować je. A jak to fundacje z medykami nie przekonuje to macie problem. Ja wam nic nie dam.
 Wolał bym być pochowany i spalony na cmentarzu niż leczony farmakologią i skalpelem ideom medycyny klasycznej nie innowacyjnej a archaicznej.
 Co do magi i sztuk tajemnych to też jest to prymitywizm skracanie prawdy bo prawdą jest to że materia jest elektroniką.
+Cały projekt Avatar będzie można przenieść do smart wach smart okularów czy bio modyfikacji i holograficznie do rzeczywistości fizycznej z ciała holograficznego nanotechnologią przywrucić zmarłego wydrukować kwantowo o to chodzi w projekcie Avatar. Porjekt avatar to zegarek który zapisze nasze DNA holograficznie magicznie nanotechnologią na dużej pojemności pamięci flash nowej generacji.
+Już nie będziesz musiał myśleć o tym kiedy umrzesz czy stracisz rękę bo to odzyskasz a palenie papierosów będzie przyjemnością a nie myślą o śmierci.
