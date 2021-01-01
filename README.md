@@ -3,6 +3,7 @@ AI generator Rife to urządzenie diagnostyczno lecznicze z możliwością ulepsz
 Bada DNA,
 Leczy DNA,
 Ulepsza DNA,
+Operacje holografią bez bólu radiwo,
 Naprawia DNA,
 Aktualizuje DNA,
 Leczenie raka itp falom radiową,
