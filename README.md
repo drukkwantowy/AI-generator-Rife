@@ -5,6 +5,8 @@ Leczy DNA,
 Ulepsza DNA,
 Naprawia DNA,
 Aktualizuje DNA,
+Leczenie raka itp falom radiową,
+Naprawa wzroku komputerowo falą radiową,
 Optymalizuje DNA,
 Generuje nanotechnologie dla do procesu leczenia DNA. 
 Jest to urządzenie ulepszone bazujące na myśli Rife ale z SI. 
@@ -143,3 +145,4 @@ Wolał bym być pochowany i spalony na cmentarzu niż leczony farmakologią i sk
 Co do magi i sztuk tajemnych to też jest to prymitywizm skracanie prawdy bo prawdą jest to że materia jest elektroniką.
 Cały projekt Avatar będzie można przenieść do smart wach smart okularów czy bio modyfikacji i holograficznie do rzeczywistości fizycznej z ciała holograficznego nanotechnologią przywrucić zmarłego wydrukować kwantowo o to chodzi w projekcie Avatar. Porjekt avatar to zegarek który zapisze nasze DNA holograficznie magicznie nanotechnologią na dużej pojemności pamięci flash nowej generacji.
 Już nie będziesz musiał myśleć o tym kiedy umrzesz czy stracisz rękę bo to odzyskasz a palenie papierosów będzie przyjemnością a nie myślą o śmierci.
+Kretyńskim żartem i myśleniem tępej pały jest tomograf komputerowy który robi badanie i reperowanie oczu przy użyciu igły i leku z automatu. Lepszym pomysłem jest AI urządzenia smart i fale radiowe z nanotechnologią z radia aby naprawić wadę wzroku wystarczy zmutować DNA aby się nie psuło i samo się regulowało i naprawiało. Z takim humorem w medycynie to do stary ojciec techniki pisze jak Edison.
