@@ -151,3 +151,5 @@ Znajdzie się grupa wioskowych cyników krzykaczy gdzie wiedza o tym będzie zak
 I tak niebezpiecznym jak bomba atomowa. A agentura radia maryja będzie pisać o tym negatywne ksiąrzki pełne cynizmu.
 Ratownictwo medyczne i jego fundacje to firma aktorska. Cały ten proces można zamienić na urządzenia smart z aplikacjami AI nawet reanimacje bez łamania żeber. Medycy nie potrafią ratować jedynie ratować potrafi AI i IT. Może górol tego nie pojmie czy inny prosty człowiek.
 Smart wach może automatycznie przywrócić czynności życiowe po wypadku i ożywić zmarłego.
+Sekret omnitrixa jest prosty. Wszystko opiera się o nanotechnologię i manipulację czasem.
+Jeśli mamy kogoś otyłego i chorego na raka smart wach z tym oprogramowaniem kwantami teleportacją kwantową przywróci zdrowe DNA do czasów w których żył chory człowiek i stanie się znów zdrowy. Mechanizmy są 2 mechaniczny trawienie nowotworu i otyłości lub teleportacja kwantowa i tak oprócz wyleczenia kogoś z tych chorób można posiądź moc polimorfizmu ale z udziałem teleportacji kwantowej. Cały sekret boskich elektronik z 7 poziomu. Taki można opracować generator Rife AI. Wielki sekeret Area 51.
