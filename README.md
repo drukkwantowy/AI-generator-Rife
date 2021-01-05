@@ -7,6 +7,7 @@ Chipy DNA cyfrowe
 Operacje holografią bez bólu radiwo,
 Naprawia DNA,
 Aktualizuje DNA,
+Kryształy mocy druk krzyształów mocy lub ich fale,
 Leczenie raka itp falom radiową,
 Naprawa wzroku komputerowo falą radiową,
 Optymalizuje DNA,
@@ -158,3 +159,4 @@ Sekret wiecznej młodości w smart wach z nanotechnologią i manipulacją czasem
 NP.: przywracamy DNA sprzed choroby sprzed 30 lat odmładzając się tym samym i niszcząc kod Śmierci. Można też archaicznie wykonać szczepionkę ale dla nowych pokoleń ciekawsza będzie elektronika z 7 poziomu. 
 Jak komuś te repozytoria pomogą chciał bym dostać nagrodę Nobla.
 Masz Moli i róża pobawcie się. A Gwen wy pójdziecie z każdym do łóżka nawet z tym co napisał księge dla ludzi czyli bogiem. Ładne kobiety zawsze były lekich obyczajów.
+Jak bym miał ocenic jaki cyberpunk 2045 miał by być idealny to kryształy Gwen ona ma przynajmniej klase. A Moly, Rose z longa, Jessica Residen evil wy możecie iść do programu dziewczyny do wzięcia mało znane kobiety. Kobieta musi mieć kalase i intelekt. Elekronika w DNA to archaik. Wolał bym powrotu do piramid. Fajka pokoju z wami żart.
