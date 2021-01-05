@@ -3,6 +3,7 @@ AI generator Rife to urządzenie diagnostyczno lecznicze z możliwością ulepsz
 Bada DNA,
 Leczy DNA,
 Ulepsza DNA,
+Chipy DNA cyfrowe
 Operacje holografią bez bólu radiwo,
 Naprawia DNA,
 Aktualizuje DNA,
@@ -156,3 +157,4 @@ Jeśli mamy kogoś otyłego i chorego na raka smart wach z tym oprogramowaniem k
 Sekret wiecznej młodości w smart wach z nanotechnologią i manipulacją czasem. Wystarczy napisać aplikację która w czasie i przestrzeni kwantami pobiera teleportacją kwantową dane DNA zdrowego DNA i przywraca dane w uszkodzonym DNA przywracając zdrowie i naprawiając DNA.
 NP.: przywracamy DNA sprzed choroby sprzed 30 lat odmładzając się tym samym i niszcząc kod Śmierci. Można też archaicznie wykonać szczepionkę ale dla nowych pokoleń ciekawsza będzie elektronika z 7 poziomu. 
 Jak komuś te repozytoria pomogą chciał bym dostać nagrodę Nobla.
+Masz Moli i róża pobawcie się.
