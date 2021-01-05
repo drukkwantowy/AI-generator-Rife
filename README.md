@@ -160,3 +160,4 @@ NP.: przywracamy DNA sprzed choroby sprzed 30 lat odmładzając się tym samym i
 Jak komuś te repozytoria pomogą chciał bym dostać nagrodę Nobla.
 Masz Moli i róża pobawcie się. A Gwen wy pójdziecie z każdym do łóżka nawet z tym co napisał księge dla ludzi czyli bogiem. Ładne kobiety zawsze były lekich obyczajów.
 Jak bym miał ocenic jaki cyberpunk 2045 miał by być idealny to kryształy Gwen ona ma przynajmniej klase. A Moly, Rose z longa, Jessica Residen evil wy możecie iść do programu dziewczyny do wzięcia mało znane kobiety. Kobieta musi mieć kalase i intelekt. Elekronika w DNA to archaik. Wolał bym powrotu do piramid. Fajka pokoju z wami żart.
+Gdyby napisać na nowo Cyberpunka to można dać Gwen. Urocza dziewczyna jeśli istnieje w innym wszechświecie. Ale taka dama do roli kobiety ze slamsów się nie nadaje. Wolał bym leczyć kamieniami lub lekami niż nożem. Leki z kwantami magicznymi łatwo pozyskać niż chip DNA.
