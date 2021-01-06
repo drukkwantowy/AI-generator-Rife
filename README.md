@@ -165,3 +165,4 @@ Gdyby napisać na nowo Cyberpunka to można dać Gwen. Urocza dziewczyna jeśli 
 Najlepiej dodać funkcje automatyczną AI do smart wach i wprowadzić tanisze rozwiązania niż walizki i fizyka PRL czyli 100 kg złomu za 10000 zł. 
 Programowanie kwantowe DNA jak i naprawa na bazie badania laserem tętna i pulsu.
 Smart wach jest jak prosty telefon. Sterowanie myślą i głosem alexa a obraz można generować w oczach jako holograficzny. Raporty można generować w PDF do pobrania przez sieć bezprzewodową lub łącząc się z drukarką bezprzewodową i drukując je jak są potrzebne cały proces uproszczony i automatyczny jak działanie biologicznych układów podtrzymania życia bez manualności i aktorstwa. Obecny sprzęt który jest nie jest wart tych pieniędzy za które ci ludzie wołają taniej będzie i szybciej sprzedać zegarek kwantowy. 
+Lewak powie że wirtualnie nic się nie da zrobić że to nie możliwe bo kłamie i sprzeda coś co jest gównem w cenie złota jako złoto.
