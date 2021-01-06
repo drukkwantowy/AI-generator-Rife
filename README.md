@@ -163,3 +163,4 @@ Masz Moli i róża pobawcie się. A Gwen wy pójdziecie z każdym do łóżka na
 Jak bym miał ocenic jaki cyberpunk 2045 miał by być idealny to kryształy Gwen ona ma przynajmniej klase. A Moly, Rose z longa, Jessica Residen evil wy możecie iść do programu dziewczyny do wzięcia mało znane kobiety. Kobieta musi mieć kalase i intelekt. Elekronika w DNA to archaik. Wolał bym powrotu do piramid. Fajka pokoju z wami żart.
 Gdyby napisać na nowo Cyberpunka to można dać Gwen. Urocza dziewczyna jeśli istnieje w innym wszechświecie. Ale taka dama do roli kobiety ze slamsów się nie nadaje. Wolał bym leczyć kamieniami lub lekami niż nożem. Leki z kwantami magicznymi łatwo pozyskać niż chip DNA.
 Najlepiej dodać funkcje automatyczną AI do smart wach i wprowadzić tanisze rozwiązania niż walizki i fizyka PRL czyli 100 kg złomu za 10000 zł. 
+Programowanie kwantowe DNA jak i naprawa na bazie badania laserem tętna i pulsu.
