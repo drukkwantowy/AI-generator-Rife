@@ -3,9 +3,10 @@ AI generator Rife to urządzenie diagnostyczno lecznicze z możliwością ulepsz
 Bada DNA,
 Leczy DNA,
 Ulepsza DNA,
-Chipy DNA cyfrowe
+Chipy DNA cyfrowe ciekły metal
 Operacje holografią bez bólu radiwo,
 Naprawia DNA,
+Ciekły metal w komórkach umieszczany teleportacją kwantową z oprogramowaniem AI generatora Rife,
 Analizator kwantowy,
 Aktualizuje DNA,
 Kryształy mocy druk krzyształów mocy lub ich fale,
@@ -166,3 +167,4 @@ Najlepiej dodać funkcje automatyczną AI do smart wach i wprowadzić tanisze ro
 Programowanie kwantowe DNA jak i naprawa na bazie badania laserem tętna i pulsu.
 Smart wach jest jak prosty telefon. Sterowanie myślą i głosem alexa a obraz można generować w oczach jako holograficzny. Raporty można generować w PDF do pobrania przez sieć bezprzewodową lub łącząc się z drukarką bezprzewodową i drukując je jak są potrzebne cały proces uproszczony i automatyczny jak działanie biologicznych układów podtrzymania życia bez manualności i aktorstwa. Obecny sprzęt który jest nie jest wart tych pieniędzy za które ci ludzie wołają taniej będzie i szybciej sprzedać zegarek kwantowy. 
 Lewak powie że wirtualnie nic się nie da zrobić że to nie możliwe bo kłamie i sprzeda coś co jest gównem w cenie złota jako złoto.
+Ciekły metal można wykreować z widma chemicznego ze zdjęcia lub skanu kwantowego ciekłego metalu fizycznie i umieścić go w DNA teleportacją kwantową. 
