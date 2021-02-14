@@ -201,3 +201,4 @@ Dzięki nanotechnologi można opracować chmurę obliczeniową wielkości kopark
 AI musi się nauczyć czyścić kod DNA ze śmieci w DNA kodu śmierci usunąć go z DNA kodowania. 
 Całe urządzenie mieści się w Smartwach program zajmuje 32GB z Alexą idea 2045 w zegarku i przywracanie nanotechnoogią jak zgubi się zegarek.  Jak się zginie kwantowo można odtworzyć ciało z Avataru D do ciała fizycznego Avatara A. 
 Ta technologia może regenerować i otwarzać tkanki DNA i zatrzymać starość. 
+Całą inicjatywę 2045 można zmieścić w Smartwach.
