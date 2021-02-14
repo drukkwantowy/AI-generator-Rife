@@ -199,4 +199,4 @@ Kopia cyfrowa naszego umysłu na koparce BTC chmurze obliczeniowej z Alexą moż
 Ludzki umysł i ciało można przechowywać w nanotechnologii jako zapis cyfrowy i falą radiową hologram zamienić w ciało fizyczne bez robotów i biologii tu mamy biologię holograficzną cyfrową. 
 Dzięki nanotechnologi można opracować chmurę obliczeniową wielkości koparki BTC wspułpracującej z Alexą która może robić kopie naszego ciała i nas odtwarzać. Z czasem komputery wielkości Alexy Show lub Alexy z chmurą obliczeniową na linux będą miały 1 YotaFlops.
 AI musi się nauczyć czyścić kod DNA ze śmieci w DNA kodu śmierci usunąć go z DNA kodowania. 
-Całe urządzenie mieści się w Smartwach program zajmuje 32GB z Alexą idea 2045 w zegarku i przywracanie nanotechnoogią jak zgubi się zegarek.  
+Całe urządzenie mieści się w Smartwach program zajmuje 32GB z Alexą idea 2045 w zegarku i przywracanie nanotechnoogią jak zgubi się zegarek.  Jak się zginie kwantowo można odtworzyć ciało z Avataru D do ciała fizycznego Avatara A. 
