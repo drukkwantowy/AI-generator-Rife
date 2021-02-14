@@ -192,4 +192,5 @@ Laserem można leczyć ale tylko z AI bez AI laser jest tyle wart co tabletki. L
 Laser może drukować z AI części zamienne bez dawcy lub regenerować ciało. 
 Transfer umysłu robić najlepiej laserem bez implantów. A kopie trzymać w smartwach lub DNA na zasadzie urządzenia do wskrzeszania.
 AI można wykorzystać do regenerowania tkanek np.: amputacji czy paralizów i deformacji czy raka. 
-Superkomputerem kwantowym można całą ziemie zamienić w Hologram. 
+Superkomputerem kwantowym można całą ziemie zamienić w Hologram aby nigdy nie było katastrof kosmicznych. 
+Koparki BTC mogą po wykopaniu BTC lub być produkowane do wykonywania kopi umysłu pracować z Alexą i przywracać nas do życia z kopi cyfrowej do świata tego fizycznego. 
