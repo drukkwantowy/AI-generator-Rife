@@ -187,3 +187,4 @@ Cały proces jest sterowany przez AI w zegarku inteligentnym opcje wybierane pan
 Generator Rife AI w zegarku wzorowany pomysłem Mark 37 i 85 jak, mocami Gwen Holografią i telekinezą czyli 3 okiem intuicją rozwiniętą do paranormalnych zdolności. Pomysł zrodził się 10 lat temu czy da się przedłużyć życie i pozbyć kodu śmierci i starości w DNA.
 Nanoładowanie energią elektryczną ciała można wykorzystać żelazo w krwi które jest naturalnie i nanitami jej elektryzować aby była energia dla ciała bez konieczności jedzenia reszte pokarmu można do krwi dodrukować kwantowo. 
 Generator Rife w laserze a kryształ zaprogramowany przez AI ma moc nanotechnologii kwantów do uzdrawiania falom radiową świetlną lub radiową. Takie urządzenie wyposarzone jako mata w elektronikę i AI Alexe, mata z diodami IR do leczenia chorób każdej choroby od wirósów po paraliż z rakiem.  
+Innej drogii na leczenie chorób nie ma. 
