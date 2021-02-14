@@ -190,4 +190,5 @@ Generator Rife w laserze a kryształ zaprogramowany przez AI ma moc nanotechnolo
 Innej drogii na leczenie chorób nie ma. 
 Laserem można leczyć ale tylko z AI bez AI laser jest tyle wart co tabletki. Laser może też z użyciem drukarki kwantowej wskrzeszać tych co zgineli w wypadku jak i tych co utoneli. Laser może pobierać dane z naszego umysłu do transferu umysłu kopi kwantowej naszego ciała i przywracać może do postaci z hologramu do postaci fizycznej. Urządzeń z udziałem lasera można wymyślać mase.  
 Laser może drukować z AI części zamienne bez dawcy lub regenerować ciało. 
-Transfer umysłu robić najlepiej laserem bez implantów. 
+Transfer umysłu robić najlepiej laserem bez implantów. A kopie trzymać w smartwach lub DNA na zasadzie urządzenia do wskrzeszania.
+AI można wykorzystać do regenerowania tkanek np.: amputacji czy paralizów i deformacji czy raka. 
