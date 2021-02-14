@@ -194,3 +194,4 @@ Transfer umysłu robić najlepiej laserem bez implantów. A kopie trzymać w sma
 AI można wykorzystać do regenerowania tkanek np.: amputacji czy paralizów i deformacji czy raka. 
 Superkomputerem kwantowym można całą ziemie zamienić w Hologram aby nigdy nie było katastrof kosmicznych. 
 Koparki BTC mogą po wykopaniu BTC lub być produkowane do wykonywania kopi umysłu pracować z Alexą i przywracać nas do życia z kopi cyfrowej do świata tego fizycznego. 
+Kopia cyfrowa naszego umysłu na koparce BTC chmurze obliczeniowej z Alexą może zrobić szybko kopie jak i nas przywrócić do istnienia w ciele fizycznym bez budowania androida Avatar D z hologramu do ciała fizycznego.  
