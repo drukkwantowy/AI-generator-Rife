@@ -196,3 +196,4 @@ Superkomputerem kwantowym można całą ziemie zamienić w Hologram aby nigdy ni
 Koparki BTC mogą po wykopaniu BTC lub być produkowane do wykonywania kopi umysłu pracować z Alexą i przywracać nas do życia z kopi cyfrowej do świata tego fizycznego. 
 Kopia cyfrowa naszego umysłu na koparce BTC chmurze obliczeniowej z Alexą może zrobić szybko kopie jak i nas przywrócić do istnienia w ciele fizycznym bez budowania androida Avatar D z hologramu do ciała fizycznego.  
 Ludzki umysł i ciało można przechowywać w nanotechnologii jako zapis cyfrowy i falą radiową hologram zamienić w ciało fizyczne bez robotów i biologii tu mamy biologię holograficzną cyfrową. 
+Dzięki nanotechnologi można opracować chmurę obliczeniową wielkości koparki BTC wspułpracującej z Alexą która może robić kopie naszego ciała i nas odtwarzać. Z czasem komputery wielkości Alexy Show lub Alexy z chmurą obliczeniową na linux będą miały 1 YotaFlops.
