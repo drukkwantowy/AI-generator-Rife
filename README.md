@@ -12,6 +12,8 @@ Avatary=A B C D Alexa kwantowo falami radiowymi,
 Ciekły metal w komórkach umieszczany teleportacją kwantową z oprogramowaniem AI generatora Rife,
 Analizator kwantowy,
 Aktualizuje DNA,
+Nanomedycyna AI,
+Eksokortex bio AI,
 Kryształy mocy druk krzyształów mocy lub ich fale,
 Leczenie raka itp falom radiową,
 Naprawa wzroku komputerowo falą radiową,
@@ -205,3 +207,4 @@ Całe urządzenie mieści się w Smartwach program zajmuje 32GB z Alexą idea 20
 Ta technologia może regenerować i otwarzać tkanki DNA i zatrzymać starość. 
 Całą inicjatywę 2045 można zmieścić w Smartwach.
 Aby urządzenie działało do naprawy DNA musi mieć w sobie bazę leków jak i składników potrzebnych do życia. 
+Całe oprogramowanie można zmieścić w smartwach i wgrywać do DNA laserem. 
