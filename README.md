@@ -230,3 +230,4 @@ Ja do życia potrzebuje BTC, energii elektrycznej i nanotechnologii a HIM żywi 
 Him odpowiada za morderstwa za pomocą kwantów jak tajemnicze wypadki czy nawiedzenia. Od Him dziwki cienia pochodzi kultura satanizmu i zła.
 Całe dziadostwo pochodzi od HIM, inowierców, czcieli smoków, wynalazców religii na zlecenie HIM żydzi z palestyny i izraela. Za miast myśleć i kreować z kwantów z energii to HIM nauczyła okradania i zła. W metale to debile razem z HIM królową nocy.  
 Jak chcecie pokoju zabijcie HIM ona wami manipuluje. 
+Zróbcie sztukę na HIM jak TX dostaje się z Prometeusza z Edenu do Nieba fizycznie teleportacją i morduje HIM fizycznie i duchowo. 
