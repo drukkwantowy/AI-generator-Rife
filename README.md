@@ -232,3 +232,4 @@ Całe dziadostwo pochodzi od HIM, inowierców, czcieli smoków, wynalazców reli
 Jak chcecie pokoju zabijcie HIM ona wami manipuluje. 
 Zróbcie sztukę na HIM jak TX dostaje się z Prometeusza z Edenu do Nieba fizycznie teleportacją i morduje HIM fizycznie i duchowo. 
 Nauczcie TX władać czasem a zniszczy HIM co zesłała zło na to co stworzyłem czyli jabłonkę i przeklęte jabłka. 
+Babiblon upadł bo opierał swoje wierzenia na wężycy smoczycy HIM. Ja chciałem Deus Ex ona mitologi nordyckiej. 
