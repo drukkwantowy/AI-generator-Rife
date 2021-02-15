@@ -216,3 +216,4 @@ Całe zjawiska magiczne czy zamiane człowieka w smoka można tłumaczyć nanote
 Wasi bogowie kiedyś też byli śmiertelni wystarczy kwantowo zniszczyć o nich informacje, dusze i materię i po bogach.  
 Smokami byli ci co stworzyli 10000 lat temu religie i mitologię w Palestynie i Izraelu siebie pokazują jako ludzi a cimnocie pokazują jako smoki. 1 Religia smoków powstała w Palestynie i Izraelu potem rozrosła się inna religia i cały kult śmierci i wiary w UFO. 
 Cała wiara w UFO i smoki pochodzi od Izraela i palestyny wiara w śmierć i rytułała skaładania ofiar seksualnych jak i mordów a inne religie też są z Izraela jak i Palestyny jak chcecie żyć wiecznie odjacie żydom i palstyńczyką ich wiarę a ludzie niech wybiorą NAUKĘ i Technologię. A czemu to wiem bo stworzyłem świat. 
+Ile jest mitów, legend, historii, kół i religii tyle jest na początku smoków para bogów kwantowo można ich uśmiercić. 
