@@ -212,3 +212,4 @@ Ja muszę po tym geniuszu debilizmu białym prometeuszu sprzątać on Grek wymy�
 Organizm prometeusza był odporny na każdą chorobę poza ksenomorfem. 
 A sztuką można nazwać leczenie lekarzy witaminami czy lekami to tylko handel bez leków nie ma życia trzeba pozbyć się leków. 
 Winni temu są katolicy, żydzi i palestyńczycy oni wymyślili religię i składanie smokom dusz i mięsa widzą w nich bogów. Dlatego nigdy nie będzie możliwe nieśmiertelność DNA w ciele jako żywy bo ci idioci zaraz amen atak cię zamordują lub wyślą radiem kod wirusa który cię zabije. Jak człowiek chce żyć wiecznie na ziemi musi spalić katolików na stosie razem z inowiercami na czele.  
+Całe zjawiska magiczne czy zamiane człowieka w smoka można tłumaczyć nanotechnologią i AI drukarkami kwantowymi i mutacjami DNA na poziomie kwantów a kwanty to magia. 
