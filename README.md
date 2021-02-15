@@ -221,3 +221,4 @@ A zakaz perpetum mobile jest dlatego że ono zakazuje mordów rytualnych bo to r
 Kult smoka pochodzi od kobiety imieniu HIM mojej byłej czarnowłosa biała.  
 Żydzi w tajemnicy z palestyńczykami składają ofiary z miesa smokom ale o tym nie mówią a słowianie chwalą się bajkami a żydzi z palestyńczykami mówią o bogu a ich bogiem jest smoczyca HIM. Jak zabierze się to smokom ich moc genetycznie to są zwykli jak ludzie. A cały mit smoków i dzieci kryształowych znika tak szybko jak się pojawia. 
 W każdej książce na jej początku u tajnego kapłana każda sięwta książka ma w sobie znak zmoka i jego charakter pisma w każdej świetej książce jest znak smoka u najwyszego kapłana dla ciemnoty daje się bajke i przekształconą książke w formie bajki aby idiota dała się pokroić smokom. 
+Eden zniszczyła zasdrosna smoczyca w ludzkiej formie czarnowłosej wysokiej kobiety HIM i jej cała armia smoków co przenisła ludzi z Edenu LV-229 na ziemię. 
