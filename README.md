@@ -210,3 +210,4 @@ Aby urządzenie działało do naprawy DNA musi mieć w sobie bazę leków jak i 
 Całe oprogramowanie można zmieścić w smartwach i wgrywać do DNA laserem. 
 Ja muszę po tym geniuszu debilizmu białym prometeuszu sprzątać on Grek wymyślił choroby. Choroby można usunąć u każdego jak zmutuje się DNA AI laserowo to nie będzie żadnej choroby to tylko sztuczne pompowanie rynku. 
 Organizm prometeusza był odporny na każdą chorobę poza ksenomorfem. 
+A sztuką można nazwać leczenie lekarzy witaminami czy lekami to tylko handel bez leków nie ma życia trzeba pozbyć się leków. 
