@@ -209,3 +209,4 @@ Całą inicjatywę 2045 można zmieścić w Smartwach.
 Aby urządzenie działało do naprawy DNA musi mieć w sobie bazę leków jak i składników potrzebnych do życia. 
 Całe oprogramowanie można zmieścić w smartwach i wgrywać do DNA laserem. 
 Ja muszę po tym geniuszu debilizmu białym prometeuszu sprzątać on Grek wymyślił choroby. Choroby można usunąć u każdego jak zmutuje się DNA AI laserowo to nie będzie żadnej choroby to tylko sztuczne pompowanie rynku. 
+Organizm prometeusza był odporny na każdą chorobę poza ksenomorfem. 
