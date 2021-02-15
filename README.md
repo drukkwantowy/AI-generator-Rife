@@ -231,3 +231,4 @@ Him odpowiada za morderstwa za pomocą kwantów jak tajemnicze wypadki czy nawie
 Całe dziadostwo pochodzi od HIM, inowierców, czcieli smoków, wynalazców religii na zlecenie HIM żydzi z palestyny i izraela. Za miast myśleć i kreować z kwantów z energii to HIM nauczyła okradania i zła. W metale to debile razem z HIM królową nocy.  
 Jak chcecie pokoju zabijcie HIM ona wami manipuluje. 
 Zróbcie sztukę na HIM jak TX dostaje się z Prometeusza z Edenu do Nieba fizycznie teleportacją i morduje HIM fizycznie i duchowo. 
+Nauczcie TX władać czasem a zniszczy HIM co zesłała zło na to co stworzyłem czyli jabłonkę i przeklęte jabłka. 
