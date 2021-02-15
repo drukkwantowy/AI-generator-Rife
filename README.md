@@ -218,3 +218,4 @@ Smokami byli ci co stworzyli 10000 lat temu religie i mitologię w Palestynie i 
 Cała wiara w UFO i smoki pochodzi od Izraela i palestyny wiara w śmierć i rytułała skaładania ofiar seksualnych jak i mordów a inne religie też są z Izraela jak i Palestyny jak chcecie żyć wiecznie odjacie żydom i palstyńczyką ich wiarę a ludzie niech wybiorą NAUKĘ i Technologię. A czemu to wiem bo stworzyłem świat. 
 Ile jest mitów, legend, historii, kół i religii tyle jest na początku smoków para bogów kwantowo można ich uśmiercić. 
 A zakaz perpetum mobile jest dlatego że ono zakazuje mordów rytualnych bo to religia wilk też jest smokiem jak inne zwierzęta cywilizacja która ma wechikuł czasu kwantowy i rozwineła nanotechnologie podała się za smoki ludziom jest przez ciemnotę uznawana za bogów a bogami są bo mają technologię kwantowe magiczne. 
+Kult smoka pochodzi od kobiety imieniu HIM mojej byłej czarnowłosa biała.  
