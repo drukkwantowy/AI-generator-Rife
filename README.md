@@ -215,3 +215,4 @@ Winni temu są katolicy, żydzi i palestyńczycy oni wymyślili religię i skła
 Całe zjawiska magiczne czy zamiane człowieka w smoka można tłumaczyć nanotechnologią i AI drukarkami kwantowymi i mutacjami DNA na poziomie kwantów a kwanty to magia. 
 Wasi bogowie kiedyś też byli śmiertelni wystarczy kwantowo zniszczyć o nich informacje, dusze i materię i po bogach.  
 Smokami byli ci co stworzyli 10000 lat temu religie i mitologię w Palestynie i Izraelu siebie pokazują jako ludzi a cimnocie pokazują jako smoki. 1 Religia smoków powstała w Palestynie i Izraelu potem rozrosła się inna religia i cały kult śmierci i wiary w UFO. 
+Cała wiara w UFO i smoki pochodzi od Izraela i palestyny wiara w śmierć i rytułała skaładania ofiar seksualnych jak i mordów a inne religie też są z Izraela jak i Palestyny jak chcecie żyć wiecznie odjacie żydom i palstyńczyką ich wiarę a ludzie niech wybiorą NAUKĘ i Technologię. A czemu to wiem bo stworzyłem świat. 
