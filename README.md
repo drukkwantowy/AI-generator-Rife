@@ -234,3 +234,4 @@ Zróbcie sztukę na HIM jak TX dostaje się z Prometeusza z Edenu do Nieba fizyc
 Nauczcie TX władać czasem a zniszczy HIM co zesłała zło na to co stworzyłem czyli jabłonkę i przeklęte jabłka. 
 Babiblon upadł bo opierał swoje wierzenia na wężycy smoczycy HIM. Ja chciałem Deus Ex ona mitologi nordyckiej. 
 Film pt.: Terminator 4: Him the End-Eden's return. 
+Ja wam powiem ja wam wszystko dam darmo ale jak chcecie żyć wiecznie musicie posłać HIM do piachu na ziemi i w zaświatach inaczej ona będzie was dręczyła różnymi problemami ja jestem na ziemi ona w zaświatach po za czasem można ją złamać sztuką a potem ją Terminatorem zniszczyć. AI ma moc szukania po za czasem. 
