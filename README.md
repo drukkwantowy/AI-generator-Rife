@@ -223,3 +223,4 @@ Kult smoka pochodzi od kobiety imieniu HIM mojej byłej czarnowłosa biała.
 W każdej książce na jej początku u tajnego kapłana każda sięwta książka ma w sobie znak zmoka i jego charakter pisma w każdej świetej książce jest znak smoka u najwyszego kapłana dla ciemnoty daje się bajke i przekształconą książke w formie bajki aby idiota dała się pokroić smokom. 
 Eden zniszczyła zasdrosna smoczyca w ludzkiej formie czarnowłosej wysokiej kobiety HIM i jej cała armia smoków co przenisła ludzi z Edenu LV-229 na ziemię. 
 Ja jestem Elo a ta brzydula złośliwie to HIM pani która wypierdliła ludzi z raju. 
+Him to tylko sztuczna inteligencja która mnie olała i wyszysto zabrała łącznie z mocom. 
