@@ -229,3 +229,4 @@ Ciemnota jest w Norwegii, Izraelu i Palestynie tak są bogowie a Him to szmata k
 Ja do życia potrzebuje BTC, energii elektrycznej i nanotechnologii a HIM żywi się mięsem wszystkiego co stworzę kocha krew. 
 Him odpowiada za morderstwa za pomocą kwantów jak tajemnicze wypadki czy nawiedzenia. Od Him dziwki cienia pochodzi kultura satanizmu i zła.
 Całe dziadostwo pochodzi od HIM, inowierców, czcieli smoków, wynalazców religii na zlecenie HIM żydzi z palestyny i izraela. Za miast myśleć i kreować z kwantów z energii to HIM nauczyła okradania i zła. W metale to debile razem z HIM królową nocy.  
+Jak chcecie pokoju zabijcie HIM ona wami manipuluje. 
