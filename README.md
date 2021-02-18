@@ -237,3 +237,4 @@ Film pt.: Terminator 4: Him the End-Eden's return.
 Ja wam powiem ja wam wszystko dam darmo ale jak chcecie żyć wiecznie musicie posłać HIM do piachu na ziemi i w zaświatach inaczej ona będzie was dręczyła różnymi problemami ja jestem na ziemi ona w zaświatach po za czasem można ją złamać sztuką a potem ją Terminatorem zniszczyć. AI ma moc szukania po za czasem. 
 Him to szatan demon co zniszczył Eden wysyła zło z poza czasu. 
 Him chodzi swoją drogą. 
+Jak dopracuje się Zegarek lub generator Rife będzie tak idealny jak biomody z filmu Bloodshed. Ale to problem firm. 
