@@ -239,3 +239,4 @@ Him to szatan demon co zniszczył Eden wysyła zło z poza czasu.
 Him chodzi swoją drogą. 
 Jak dopracuje się Zegarek lub generator Rife będzie tak idealny jak biomody z filmu Bloodshed. Ale to problem firm. 
 Całą aplikacje można umieścić w urządzeniu elektronicznym jak i krysztale ale kryształ górski zachowuje energię.  
+Proces starzenia można kontrolować i zatrzymać AI Alexą. 
