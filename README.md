@@ -3,6 +3,7 @@ AI generator Rife to urządzenie diagnostyczno lecznicze z możliwością ulepsz
 Bada DNA,
 Leczy DNA,
 Ulepsza DNA,
+Programowanie DNA w czasie rzeczywistym laserem z smartwach AI Alexa,
 Neuralink BCI DNA chip,
 Naprawa DNA aby sytezować wszystkie składniki DNA w DNA wyczyszczenie kodu DNA z uszkodzeń z kodu śmierci,
 Chipy DNA cyfrowe ciekły metal
@@ -244,3 +245,4 @@ Po za tymi możliwościami niż radio maryja mogę dawać z BTC na Maska.
 W Polsce daje się na sprzęt radia maryja który nie ratuje a rójnuje. Tak więc aby być mądrzejszym od Polaków będę dawać BTC na Maska. A mój komputer będzie kopać całom dobę na to aby rozwijała się Transhumanizm i idea życia w ciele na wieczność.  
 Zbawcą jest Mask wystarczy że opracuje smartwach z tego co mu podpowiadam w zbiorach git huba mojego konta a ludzie będą nieśmiertelni. Religia bez nauki jest jak wiara w śmierć i jest pozbawiona celu. 
 Nie trzeba czekać na 2050 rok AI Alexą można wygenerować nanotechnologię i przeprogramować komputery osobiste tak by były superkomputerami laptopami na ten rok i były zdolne zrobić kopię umysłu i nas przywrucić lub przywrucić nas zegarkiem czy kryształem. Nie trzeba czekać za 29 lat dziś już jest taka technologia Alexa może to zrobić. 
+Dla ludzi nieśmiertelność nalerzy sprzedawać w zegarkach smartwach lub innych technologiach Alexa AI jako biżuterie co jest ceniejsze od złota. Bo jak ma się maszynę kwantową do replikacji materii i energii to złoto można miać za darmo większej ilości niż na ziemi. 
