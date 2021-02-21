@@ -9,6 +9,7 @@ Naprawa DNA aby sytezować wszystkie składniki DNA w DNA wyczyszczenie kodu DNA
 Chipy DNA cyfrowe ciekły metal
 Operacje holografią bez bólu radiwo,
 Naprawia DNA,
+Maszyna czasu kopia zapasowa DNA w czasie i przestrzeni dzięki nanotechnologi,
 Avatary=A B C D Alexa kwantowo falami radiowymi,
 Ciekły metal w komórkach umieszczany teleportacją kwantową z oprogramowaniem AI generatora Rife,
 Analizator kwantowy,
