@@ -242,3 +242,4 @@ Całą aplikacje można umieścić w urządzeniu elektronicznym jak i krysztale 
 Proces starzenia można kontrolować i zatrzymać AI Alexą. 
 Po za tymi możliwościami niż radio maryja mogę dawać z BTC na Maska. 
 W Polsce daje się na sprzęt radia maryja który nie ratuje a rójnuje. Tak więc aby być mądrzejszym od Polaków będę dawać BTC na Maska. A mój komputer będzie kopać całom dobę na to aby rozwijała się Transhumanizm i idea życia w ciele na wieczność.  
+Zbawcą jest Mask wystarczy że opracuje smartwach z tego co mu podpowiadam w zbiorach git huba mojego konta a ludzie będą nieśmiertelni. Religia bez nauki jest jak wiara w śmierć i jest pozbawiona celu. 
