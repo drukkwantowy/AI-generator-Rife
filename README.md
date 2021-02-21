@@ -241,3 +241,4 @@ Jak dopracuje się Zegarek lub generator Rife będzie tak idealny jak biomody z 
 Całą aplikacje można umieścić w urządzeniu elektronicznym jak i krysztale ale kryształ górski zachowuje energię.  
 Proces starzenia można kontrolować i zatrzymać AI Alexą. 
 Po za tymi możliwościami niż radio maryja mogę dawać z BTC na Maska. 
+W Polsce daje się na sprzęt radia maryja który nie ratuje a rójnuje. Tak więc aby być mądrzejszym od Polaków będę dawać BTC na Maska. A mój komputer będzie kopać całom dobę na to aby rozwijała się Transhumanizm i idea życia w ciele na wieczność.  
